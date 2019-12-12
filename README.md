@@ -16,3 +16,6 @@ Quel bonheur de manger ces spaghetti carbonara dis alors *Micheline*!
 Elles sont moins bonne qu'en Italie rétorqua *Hector* !
 
 C'est alors qu'une mouche tomba dans la mayo de George. Lui qui ne voulait pas mettre la sauce sur les frittes. Néanmoins une bonne bière fera passer tout cela
+
+Je comprends que dalle !!!!!
+
