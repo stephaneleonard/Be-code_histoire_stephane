@@ -10,3 +10,7 @@ Un jour sa mère, ayant cuit et fait des galettes, lui dit : « Va voir comme se
 - *Jean* finis alors par craquer et choisis la sauce cocktail.
 
 Quel bonheur de manger ces spaghetti carbonara dis alors *Micheline*!
+
+-  *Hector* éclata de rire et croqua dans sa pizza
+
+Elles sont moins bonne qu'en Italie rétorqua *Hector* !
