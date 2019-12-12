@@ -8,3 +8,5 @@ Un jour sa mère, ayant cuit et fait des galettes, lui dit : « Va voir comme se
 >Ils finirent tous chez Robert pour se manger une frite, mayonnaise choisi alors *Lucie* 
 - "Non" s'exclaffa *Micheline*! , "Une samourai"
 - *Jean* finis alors par craquer et choisis la sauce cocktail.
+
+Quel bonheur de manger ces spaghetti carbonara dis alors *Micheline*!
